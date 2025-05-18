@@ -1,2 +1,1 @@
-# sorgu
-sorgu bot sorgu panel sorgu sitesi https://t.me/holotoolsbot https://t.me/holoreborn
+sorgubot #sorgu #sorgu panel #vesika #sorgusitesi #bedava sorgu #free sorgu #ücretsiz sorgu #holotoolsbot #holotools https://t.me/holoreborn https://t.me/holotoolsbot
